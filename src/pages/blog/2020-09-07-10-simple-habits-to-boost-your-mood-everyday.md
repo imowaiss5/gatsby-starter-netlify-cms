@@ -49,8 +49,6 @@ There is something about being grateful that lifts up your spirit. I believe tha
 
 ![10 Simple Habits to Boost Your Mood Everyday](https://www.lynnegabriel.com/wp-content/uploads/2019/04/DSC_0141.jpg)
 
-
-
 From the moment we wake up in the morning until we close our eyes for bed at night, we make choices on a daily basis. Those choices can make or break the rest of our day or the rest of our lives. Sometimes though we feel that we have to make choices that don’t necessarily align with what we want. Such as in the case of going to a job we don’t necessarily enjoy. If this is the case, we often feel unhappy. Everyday tends to become a drag. This kind of attitude can affect not only our job performance but also our overall well-being.
 
 #### **But here are 10 simple habits to boost your mood everyday:**
@@ -105,25 +103,7 @@ Basically, what it’s saying is that, you become what you focus on. If you focu
 
 <!--EndFragment-->
 
-
-
-<!--StartFragment-->
-
-[FEATURED](https://www.lynnegabriel.com/category/featured/), [LIFE THOUGHTS](https://www.lynnegabriel.com/category/life-thoughts/) ·
-
-# 10 Simple Habits to Boost Your Mood Everyday
-
-[Share](https://www.lynnegabriel.com/10-simple-habits-to-boost-your-mood-everyday/#)
-
-[Tweet](https://www.lynnegabriel.com/10-simple-habits-to-boost-your-mood-everyday/#)
-
-[Pin](https://www.lynnegabriel.com/10-simple-habits-to-boost-your-mood-everyday/#)
-
-[Share](https://www.lynnegabriel.com/10-simple-habits-to-boost-your-mood-everyday/#)
-
-![10 Simple Habits to Boost Your Mood Everyday](https://www.lynnegabriel.com/wp-content/uploads/2019/04/DSC_0141.jpg)
-
-
+![]()
 
 From the moment we wake up in the morning until we close our eyes for bed at night, we make choices on a daily basis. Those choices can make or break the rest of our day or the rest of our lives. Sometimes though we feel that we have to make choices that don’t necessarily align with what we want. Such as in the case of going to a job we don’t necessarily enjoy. If this is the case, we often feel unhappy. Everyday tends to become a drag. This kind of attitude can affect not only our job performance but also our overall well-being.
 
